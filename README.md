@@ -1,5 +1,5 @@
 # 🧭 Sobre mim:
-💎 Aprendiz no Universo da Tecnologia <br>🎓 Ánalise e Desenvolvimento de Sistemas <br>💻 Desenvolvedor Aprendiz/Front-end<br>🎨 Artista nas horas vagas
+💎 Aprendiz no Universo da Tecnologia <br>🎓 Cursando Ánalise e Desenvolvimento de Sistemas <br>💻 Desenvolvedor Aprendiz/Front-end<br>🎨 Artista nas horas vagas
 
 
 ## 🌐 Redes Sociais:
